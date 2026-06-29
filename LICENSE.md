@@ -1,4 +1,4 @@
-
+CactusVPN high-speed Extension: streaming-optimization & dedicated-IP offers the most advanced CactusVPN extension, with streaming-optimization and dedicated-IP. Ideal for users
 
 
 
